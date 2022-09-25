@@ -73,6 +73,8 @@ Polygon // 0x0d7C461154D2B19De35830655C32fBb029527893
 --------------------------------------------
 ----------- Social media accounts -----------
 
+My Discord server // https://discord.gg/hyT2QQczCa
+
 My Twitter account // https://twitter.com/0FFENS1VE_R3AL
 
 My YouTube account // https://www.youtube.com/channel/UCWjwaio6S_sf8F7bTo4XhIg
